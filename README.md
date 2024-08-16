@@ -6,4 +6,4 @@ Estou me desenvolvendo na linguagem JavaScript
 
 Utilizo esse espaço para me organizar e compartilhamento dou meus projetos desenvolvidos
 
-![](https://media1.tenor.com/m/ZMe398J4PoEAAAAC/ok-okay.gif)
+![](https://media.tenor.com/kME2FQjK0_0AAAAi/liquidkurtis-sevsgifs.gif)
